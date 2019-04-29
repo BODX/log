@@ -10,4 +10,3 @@ Description on Medium: Musings on world unfuckafication through open design
 
 ---
 
-All notes can be found on Medium as well at https://medium.com/bureaucrats
